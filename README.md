@@ -4,7 +4,7 @@
 
 Before we dive into the guide, here's an exciting offer exclusively for Pokémon Go players: **Claim your free Poké Balls and Poké Coins** today by simply following the steps outlined below! Whether you're an iOS or Android user, you won't want to miss out on this opportunity to level up your gameplay. These items will help you capture more Pokémon, participate in events, and make your Pokémon journey more enjoyable. So, don’t wait—accept the offer now and start collecting your free rewards!
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 ### Introduction
 
